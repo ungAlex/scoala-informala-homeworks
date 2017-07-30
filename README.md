@@ -1,1 +1,1 @@
-# scoala-informala-homeworks
+# Alexandru Ungureanu
